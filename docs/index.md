@@ -1,5 +1,3 @@
-<img width="760" height="428" alt="image" src="https://github.com/user-attachments/assets/7fba9390-ab4a-479c-b2fd-3d94f63e95cd" />## Welcome to
-
 ![Construction in progress](https://external-content.duckduckgo.com/iu/?u=https%3A%2F%2Fmedia.tenor.com%2FYgsRuQaF7UMAAAAC%2Fjackhanmer-construction.gif&f=1&nofb=1&ipt=b7d49267c648eef6efb4c7186a2397b5d050c1ba995c216118021513dca364ad)
 
 ## Leather & Steel in the California Redwoods
